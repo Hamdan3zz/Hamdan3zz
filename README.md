@@ -2,7 +2,7 @@
 - 👀 I’m interested in Game Development and Website 
 - 🌱 I’m currently learning Game Development 
 - 💞️ I’m looking to collaborate on Game Development 
-- 📫 How to reach me hamdanmanjeri@gmail.com
+- 📫 How to reach me hamdanmji@gmail.com
 - 😄 Pronouns: TICK TOCK 
 - ⚡ Fun fact: START WITH SMALL 
 
